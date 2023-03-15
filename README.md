@@ -1,1 +1,1 @@
-# sambo
+# sambo JANGAN BERBUAT GEGABAH
